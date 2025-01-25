@@ -1,0 +1,1 @@
+B/12 Drone from the game Stray by ShaolinBoris on Thingiverse: https://www.thingiverse.com/thing:5439079
